@@ -1,4 +1,4 @@
-This is a list of usernames of people I have interacted with recently that should be put on a socil network or platform username registration blacklist.
+This is a list of usernames of people I have interacted with recently that should be put on a social network or platform username registration blacklist.
 
 This does not inherently mean they are bad people, but they have done things I have considered to be toxic, abusive, hateful, or otherwise tend towards violating common standards for community rules.
 
